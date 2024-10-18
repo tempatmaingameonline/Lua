@@ -5,9 +5,14 @@ Disclaimer,
 All of these stuffs ( computer codes ) is " free/gratis " ( mode: public open source code ) for any people ( any living creature and creature race ) in these whole universe. I uploaded my private computer codes to the github for pay and fulfill the penalty ( read here: https://drive.proton.me/urls/DHY4E2ZG1G#aXjRVpyo2No5 ). Able use by any people ( any living creature and creature race, ie: reptile, angel, elf, etc ).
 
 
-Original owner: Supernova planet ( yellow star solar system ).
+Original owner: Supernova planet ( initial planet name " Supernova planet " in the yellow star solar system ).
 
 any people ( in these whole universe, ie: reptile, angel, elf, etc ) who not involve ( " on duty " or " responsibility " ) for paying/fulfilling the penalty please Help the Supernova planet. do not help this page.
+-
+-
+shortened history of the planet ( planet alias " Supernova planet ". initial name, not original name )
+-
+in previous ( still not sure the authentic original location, maybe " purple star solar system " or " violet star solar system " due " universe disaster matters " alias " Supernova " ), the planet was original residence " blue star Solar system " ( code: A0V, sample reference: https://en.wikipedia.org/wiki/Color_index ). somehow, the planet suffered the Supernova ( universe disaster ) and then the planet become enter into the yellow star solar system. once upon a time, the planet was accidentally hit another planet. and then the nature disaster ( massive flood ) was happened. suddenly, somehow the planet was went out from the yellow star solar system ( around 10 till 1000 years ago ). and then the planet was entered ( the status right now ) into the yellow star solar system again. the peoples ( the peoples who original residence galaxy of Supernova planet) are standing still wait for the planet come back/return into the blue star solar system again until now.
 -
 -
 ##########################################################################################################################
